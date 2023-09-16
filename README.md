@@ -1,0 +1,1 @@
+Um idiota aprendendo programar
